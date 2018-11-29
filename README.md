@@ -1,0 +1,2 @@
+# Guduri
+GFX, UI / UX DESIGNER
