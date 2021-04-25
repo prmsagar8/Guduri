@@ -1,2 +1,1 @@
-# Guduri
-UI / UX DESIGNER
+
